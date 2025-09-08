@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @GusPassos
-- 👀 I’m interested in Data analysis
+- 👀 I love working with Data!
